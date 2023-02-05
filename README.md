@@ -1,0 +1,1 @@
+# 3d-lgs-matematik-simulasyon-denemeleri-2023-32
